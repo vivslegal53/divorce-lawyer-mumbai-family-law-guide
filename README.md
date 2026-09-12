@@ -34,7 +34,7 @@ The appropriate legal approach depends on the facts, available records and wheth
 
 ## Choosing Appropriate Legal Support
 
-A person searching for a [divorce advocate in Mumbai](https://vivs.in/legal-services/divorce-lawyer-india/mumbai/) should consider more than promotional claims.
+A person searching for a divorce advocate in Mumbai should consider more than promotional claims.
 
 Useful factors to review include:
 
